@@ -1,0 +1,1 @@
+# BM71-Dongle-hard
